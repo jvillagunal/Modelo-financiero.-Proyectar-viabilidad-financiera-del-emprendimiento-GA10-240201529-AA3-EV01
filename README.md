@@ -1,0 +1,1 @@
+# Modelo-financiero.-Proyectar-viabilidad-financiera-del-emprendimiento-GA10-240201529-AA3-EV01
